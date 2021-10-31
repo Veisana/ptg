@@ -1,3 +1,0 @@
-# ptg
-hgfjhtdhvthrevt
-hfrjtfhjfhjf
